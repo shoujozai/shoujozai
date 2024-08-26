@@ -29,8 +29,6 @@ i find it hard to keep conversations with people who don't have the same interes
 </p>
 <p align="center">
 　　
-</p>
-<h2 align="center"> ᐢᗜᐢ　　;　　rentry </h2>
-<p align="center">
+# [ᐢᗜᐢ　　;　　rentry](https://rentry.co/shoujozai)
 𝜗𝜚
 </p>
