@@ -28,7 +28,3 @@ i find it hard to keep conversations with people who don't have the same interes
   <img src="https://64.media.tumblr.com/368b04bb180c10bfe4db789c4afdafab/a98878ef78713ae1-a0/s1280x1920/289e358e74777b820fe39206097e9a12545a6c42.gifv" alt="Chidori Graphic"/>
 </p>
 <p align="center">
-　　
-# [ᐢᗜᐢ　　;　　rentry](https://rentry.co/shoujozai)
-𝜗𝜚
-</p>
