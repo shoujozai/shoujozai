@@ -1,7 +1,7 @@
 # ;　　SHOUJOZAI . .
 
 <p align="center">
-  <img src="https://64.media.tumblr.com/cb41485c30c9c9fbce4893c98130912b/a98878ef78713ae1-03/s400x600/0c12bdfeedb518bb8e48c8deda70b0f40473fe84.gifv" alt="Chidori Graphic"/>
+  <img src="https://64.media.tumblr.com/5271bb6c699dae97ab4dd8693ec5933d/a98878ef78713ae1-27/s540x810/9f7b7476a89633948a018e86257e2a3ba42a856c.pnj" alt="Chidori Graphic"/>
 </p>
 
 <h2 align="center"> ᶻ  𝘇 𐰁　﹒　aki / zai </h2>
